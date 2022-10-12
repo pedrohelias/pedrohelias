@@ -1,4 +1,4 @@
-### Olá, eu sou Pedro Helias :)
+### Olá, eu sou o Pedro Helias :)
 
 
  <div>
